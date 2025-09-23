@@ -1,1 +1,0 @@
-# kingshot-bear-trap-planner
